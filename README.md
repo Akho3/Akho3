@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @Akho3
+- 👀 I’m interested in economics, politics and current affairs
+- 🌱 I’m currently learning Python
+- 💞️ I’m looking to collaborate on economic research
+- 📫 How to reach me: akholudwerigala2000@gmail.com
+- 😄 Pronouns: He, Him, His 
+- ⚡ Fun fact: I think I'm the only one without a fun fact.
